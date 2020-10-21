@@ -47,3 +47,5 @@ Smoking and depression can perpetuate each other, through any type of nicotine c
 > Know what to expect ahead of time.
 > Tell your friends ask them to help hold you accountable.
 > Quit at the same time as a friend.
+<img src="https://github.com/MamoonaAslam/HealthnCare/blob/master/5460ee40eab8eab447717965.jpeg" style="max-width:100%;">
+
